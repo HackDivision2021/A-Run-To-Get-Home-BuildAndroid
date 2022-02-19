@@ -1,1 +1,1 @@
-Builds
+Download APK and Play!
